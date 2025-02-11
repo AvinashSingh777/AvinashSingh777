@@ -1,4 +1,4 @@
-![bed8a117-492b-4129-96ee-d0731574ee3d](https://github.com/user-attachments/assets/3cc44642-161f-48aa-93a7-c505329d813e)
+![images](https://github.com/user-attachments/assets/478038a1-27b0-47c3-b160-78c4b4e3414e)
 
 Hi, I'm Avinash!👋
 
